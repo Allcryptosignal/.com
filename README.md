@@ -1,2 +1,2 @@
-# .com
-&lt;a href "https://allcryptosignal.com/" >  signals  &lt;/a>
+# allcryptosignal.com
+&lt;  https://allcryptosignal.com/
